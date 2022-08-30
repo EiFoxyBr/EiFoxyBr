@@ -1,0 +1,6 @@
+-  🌙 Oii, eu me chamo @EiFoxyBr
+-  🎮 Estou interessada em programações
+-  💡 Estou aprendendo aulas de pensamento computacionais
+-  🏴 Estou procurando aprender... a criar jogos
+-  📫 O meu instagram é.. (ei_julia_finckler)
+-  ✍️ Meu estado: Paraná Nova Santa Rosa
