@@ -1,6 +1,7 @@
--  🌙 Oii, eu me chamo @EiFoxyBr
+-  🌙 Oii, eu me chamo Júlia Isabeli Finckler
 -  🎮 Estou interessada em programações
 -  💡 Estou aprendendo aulas de pensamento computacionais
 -  🏴 Estou procurando aprender... a criar jogos
 -  📫 O meu instagram é.. (ei_julia_finckler)
 -  ✍️ Meu estado: Paraná Nova Santa Rosa
+-  👑  Meu aniversário 05/08/2006
